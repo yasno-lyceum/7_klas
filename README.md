@@ -1,1 +1,1 @@
-# 7_klas
+# 7_navchannya
